@@ -1,1 +1,1 @@
-# uin23ak2ny_resource_layout_karais02
+# uin23ak2_resource_layout_karais2
